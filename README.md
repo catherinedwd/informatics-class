@@ -24,8 +24,8 @@ This is my little corner of the internet where I put school projects, experiment
 
 ## 🧭 Let's Connect!
 Email: erindumadi@gmail.com
-Instagram: @erin_dwd
-Github: @catherinedwd
+- Instagram: @erin_dwd
+- Github: @catherinedwd
 
 ---
 
