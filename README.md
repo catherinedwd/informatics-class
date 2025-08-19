@@ -27,4 +27,6 @@ This is my little corner of the internet where I put school projects, experiment
 - Instagram: @erin_dwd
 - Github: @catherinedwd
 
+---
+
 *"Carpe diem. Seize the day. Make your life extraordinary"*
